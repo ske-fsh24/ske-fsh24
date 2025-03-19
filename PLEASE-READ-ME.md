@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ske-fsh24
+- 👀 I’m interested in technology
+- 🌱 I’m currently learning german
+- 📫 Reach me at skerdishazi@icloud.com or +355685656065
+- ⚡ Fun fact: I have created 50 websites
